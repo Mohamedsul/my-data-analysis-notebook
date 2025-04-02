@@ -32,8 +32,3 @@ Google Data Analytics Professional Certificate
 📫 Let's Connect
 
 I'm always eager to collaborate on data-driven projects and innovative solutions. Feel free to reach out via LinkedIn or email me at MOHSUL659@gmail.com!
-
-
-
-I've added "Provisional" as requested. Let me know if you need any more changes!
-
